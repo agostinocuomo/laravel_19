@@ -1,0 +1,1 @@
+finire da caricamento immaggini
